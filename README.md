@@ -26,6 +26,6 @@ DEPLOYING TO HEROKU
      
     𝐑𝐨𝐥𝐝𝐞𝐱 ......
     
-# Kanged From Hell Userbot 
+# Big thanks hell bot team 
 
 
