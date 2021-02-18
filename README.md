@@ -20,7 +20,7 @@ DEPLOYING TO HEROKU
 [![NEXUSBot logo](https://telegra.ph/file/f5f5fa0251c819246d3fa.jpg)](https://t.me/nexus_user_bot)
 # 𝐂𝐫𝐞𝐝𝐢𝐭 𝐆𝐨𝐞𝐬 𝐓𝐨
 1. 𝐑𝐨𝐥𝐝𝐞𝐱 ( 𝐦𝐨𝐢 𝐛𝐞𝐭𝐚 )
- 
+2. xaditya bro (peru player)
 
 # 𝐒𝐩𝐞𝐜𝐢𝐚𝐥 𝐓𝐡𝐚𝐧𝐤𝐬 𝐓𝐨
      
